@@ -1,0 +1,1 @@
+# TakenMind-Global-Data-Analytics-Internship
